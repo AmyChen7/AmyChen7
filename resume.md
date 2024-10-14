@@ -1,3 +1,4 @@
-Mei Qi (Amy) Chen 
-DS / Business Administration 
-March 2028
+Mei Qi (Amy) Chen's Resume 
+Education:
+Northeastern University: DS / Business Administration 
+Expected Graduation Date: June 2028
